@@ -1,2 +1,2 @@
-# una-nueva-etapa
+# una nueva etapa...
 bueno osito estas comenznado ahora si a vivir por tu vuenta asi que cuando te sientas sola recuerda que estaremos aqui
